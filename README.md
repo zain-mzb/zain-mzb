@@ -13,7 +13,7 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/zain-mzb/](https://www.linkedin.com/in/zain-mzb/)
 
-- ⚡ Fun fact **I have learned Stats and Data Science twice in my degree : (**
+- ⚡ Fun fact **I have learned Stats and Data Science for 2 years in my degree  : D**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
